@@ -23,4 +23,5 @@
   - [『春泥棒』  ヨルシカ](https://www.youtube.com/watch?v=Sw1Flgub9s8&list=RDSw1Flgub9s8&start_radio=1)
 
    ### 最近の趣味
-   韓国の小説を翻訳しながら読むこと。（楽しい）
+ - 韓国の小説を翻訳しながら読むこと。（楽しい）
+  - 津田健次郎
