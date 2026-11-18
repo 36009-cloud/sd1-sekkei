@@ -20,6 +20,7 @@
 ### カラオケで好きな曲
  - [『心という名の不可解』 Aao](https://www.youtube.com/watch?v=BMb5IetESGE&list=RDBMb5IetESGE&start_radio=1)
  - [『しわあわせ』 Vaundy](https://www.youtube.com/watch?v=JwmGruvGt_I&list=RDJwmGruvGt_I&start_radio=1)
-  - [『春泥棒』]()
+  - [『春泥棒』  ヨルシカ](https://www.youtube.com/watch?v=Sw1Flgub9s8&list=RDSw1Flgub9s8&start_radio=1)
 
-   
+   ### 最近の趣味
+   韓国の小説を翻訳しながら読むこと。（楽しい）
